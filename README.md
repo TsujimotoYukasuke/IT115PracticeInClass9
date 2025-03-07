@@ -1,2 +1,0 @@
-# IT115PracticeInClass9
-
